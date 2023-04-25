@@ -1,1 +1,5 @@
-Aluno EBAC (Full Stack Java) 
+💻💻💻💻💻 Aluno EBAC (Full Stack Java) 
+
+🐷⚪🐷🟢🐷 Palmeirense 
+
+📧📧📧📧📧 edgarbrunobenicio@gmail.com 
